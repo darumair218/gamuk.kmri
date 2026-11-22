@@ -1,0 +1,1 @@
+# gamuk.kmri
